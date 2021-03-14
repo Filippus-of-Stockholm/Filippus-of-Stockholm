@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Filippus-of-Stockholm
+- 👀 I’m interested in theology, the bible, the truth
+- 🌱 I’m currently growing in the knowledge of my Lord Jesus Christ
